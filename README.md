@@ -10,7 +10,7 @@ Pixelart-Stuff:
 
 ![alt text](https://s12.directupload.net/images/201019/kzfqnxux.png)
 
-![alt text](https://s8.directupload.net/images/210501/2bi7gds5.jpg)
+![alt text](https://s20.directupload.net/images/210515/a95x3hw8.jpg)
 
 Texturen: 
 
